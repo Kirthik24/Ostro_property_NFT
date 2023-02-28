@@ -1,0 +1,1 @@
+# Ostro_property_NFT
